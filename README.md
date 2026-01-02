@@ -92,7 +92,7 @@ Asian women. Seriously. If one already is imperfect, one should not make these f
 stereotyping is bad. I don't know... I just don't know... is this really a golden age for America or is this American toxic masculine 
 decadence, impotence spurred by feminist treachery, and consumerism alive and well? A parallel to Germanic mental deterioration as 
 their own corporations turned more foreign and their money supply turned more fiat in the years leading up to WWII? Must people have 
-to go back to farmining and mining and laboring in order to find themselves, to not be so damn artificial in this age of artificial 
+to go back to farming and mining and laboring in order to find themselves, to not be so damn artificial in this age of artificial 
 intelligence? 
 
 I was able to publish some refined algorithmic work, ideas that were swirling around my head, in the months leading up to my graduation 
