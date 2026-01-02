@@ -75,7 +75,7 @@ reads up on my biography, and tells everyone "Richard Pham is a coward, a broken
 to go through with my decision to exit the military while the night is still young. Living in a country that says it values 
 "freedom" and "independence", and then not being able to find a stable job that guarantees financial stability, and then having to 
 join the military more as a "last resort" to escape financial problems rather than any kind of genuine patriotism that cannot be 
-recited as these cute little sailor anthems, is a kind of madness due to coercion by socioeconomic techniques. Don't get me wrong 
+recited like these cute little sailor anthems, is a kind of madness due to coercion by socioeconomic techniques. Don't get me wrong 
 here. I'm not the one that always chickens out instead of going up to take a beating. But just taking a look at the state of 
 affairs... who would I be fighting for? Would I even fight if I served in the US Navy, or would I just loaf around and sit on 
 ships all day? Serious questions I had before bootcamp. I made my decision to exit because my soul told me so. Patriotism has never 
