@@ -109,7 +109,7 @@ how friendships turn usurous, friendship for utility and gain. So I guess my lac
 due to the lack of utility, I suppose, and also to the skepticism forged by education while press articles talk about these atrocities 
 and betrayals happening left and right. I am also not commenting on MSN news articles anymore, since there is a lot of ragebait and angry 
 people on there. Last but not least, I am avoiding international affairs that clearly do not favor me. For example, the US military branches, 
-such as the Navy, have recently started focusing on the Venezualan concern. The CIA bombed a factory there not more than a week ago. From a 
+such as the Navy, have recently started focusing on the Venezuelan concern. The CIA bombed a factory there not more than a week ago. From a 
 naive perspective... wow, that escalated quickly. But then I took some time to read up on Maduro, and Maduro really does look like a hamfisted 
 bruted. People say that Trump is hamfisted, but in comparison with Maduro, Trump's "war crimes" are nothing exceeding socialist villainy. 
 Maduro is a modern example. How can Venezuela be so rich in resources and so mismanaged to get to where it is at? It is like asking, how 
