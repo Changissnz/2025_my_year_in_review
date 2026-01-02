@@ -70,7 +70,7 @@ I made the decision that I could suffer in another way and hopefully, end up in 
 an organization that is defunded and mismanaged in ways unimaginable to the American public, and having to serve years in it to 
 end up with a middle-class house to my name. The US military is not really known for its transparency. I'd say its greatest 
 intellectual assets, nowadays, are from aerospace engineers and rocket scientists. And those people are usually contracted out 
-to do work for the US military rather than directly join it. I'd bet a rat's ass that there's going to a critic or a hater that 
+to do work for the US military rather than directly join it. I'd bet a rat's ass that there's going to be a critic or a hater that 
 reads up on my biography, and tells everyone "Richard Pham is a coward, a broken mentally ill man" because I actually had the nerve 
 to go through with my decision to exit the military while the night is still young. Living in a country that says it values 
 "freedom" and "independence", and then not being able to find a stable job that guarantees financial stability, and then having to 
