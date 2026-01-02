@@ -95,10 +95,9 @@ their own corporations turned more foreign and their money supply turned more fi
 to go back to farming and mining and laboring in order to find themselves, to not be so damn artificial in this age of artificial 
 intelligence? 
 
-I was able to publish some refined algorithmic work, ideas that were swirling around my head, in the months leading up to my graduation 
-from an undergraduate institute and in the off-time I spent observing the world of nature co-existing with humanity. I gained 
-practical skills in cryptography and computing, in my independent studies. I got into a terrible accident and I am grateful to be 
-alive in the way I am right now. 
+I was able to publish some refined algorithmic work, ideas that were swirling around my head, from the months leading up to my graduation 
+and in the off-time I spent observing the world of nature co-existing with humanity. I gained practical skills in cryptography and computing, 
+in my independent studies. I got into a terrible accident and I am grateful to be alive in the way I am right now. 
 
 Right now, I am making a solid effort to divorce myself from troublesome affairs. Social media, for example. I quit Facebook when all 
 my school friends ditched it. Now I am quitting LinkedIn since there is a lot of this A.I. hysterical hype on there. Marketing people. 
