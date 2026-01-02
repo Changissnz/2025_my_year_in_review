@@ -79,7 +79,8 @@ recited like these cute little sailor anthems, is a kind of madness due to coerc
 here. I'm not the one that always chickens out instead of going up to take a beating. But just taking a look at the state of 
 affairs... who would I be fighting for? Would I even fight if I served in the US Navy, or would I just loaf around and sit on 
 ships all day? Serious questions I had before bootcamp. I made my decision to exit because my soul told me so. Patriotism has never 
-been about who is and isn't officious, who is and isn't a sycophant, who is and isn't born into a rich family. Those things matter. 
+been about who is and isn't officious, who is and isn't a sycophant, who is and isn't born into a rich family. Those things matter 
+for the reputation. But war is fighting for reputation, you see. 
 
 After I quit the US Navy boot camp, I came back home. And that was the continuation of household problems. The women in my 
 household have this emboldened sense of righteousness. Morality comes from them, or should I say... they like to think that 
